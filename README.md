@@ -1,3 +1,4 @@
+![Untitled280_20250608024920](https://github.com/user-attachments/assets/3c231791-d532-4c1f-a432-d88018feecdd)
 # ABOUT ME !
 ✧ ‎  ‎ ┄ ‎ ‎im mostly offtab or semi-afk but int when im fully on my screen ! dni unless friend's or platonic partner's.
 
